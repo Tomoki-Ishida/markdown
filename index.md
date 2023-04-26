@@ -12,4 +12,4 @@
 ***
 
 ## 写真
-![Vandal](https://media.karousell.com/media/photos/products/2021/6/17/valorant_account_reaver_vandal_1623942109_e7e307d8_progressive)
+![Vandal](vandal.jfif)
